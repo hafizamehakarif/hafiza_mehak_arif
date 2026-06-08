@@ -19,5 +19,6 @@ I enjoy understanding how intelligent systems work and applying that knowledge t
 I believe in continuous learning and steady improvement. I focus on understanding concepts deeply and applying them in practical scenarios.
 
 ## Contact
-LinkedIn: https://www.linkedin.com/in/hafiza-mehak-arif-a01973347/ /
+LinkedIn: https://www.linkedin.com/in/hafiza-mehak-arif-a01973347/ 
+
 Email: mehakarif234@gmail.com
